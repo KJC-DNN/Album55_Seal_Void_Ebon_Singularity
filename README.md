@@ -1,2 +1,3 @@
-# Album55_Seal_Void_Ebon_Singularity
-Album 55 - Seal the Void &amp; Shatter the Ebon Singularity
+# Album 55 - Seal the Void &amp; Shatter the Ebon Singularity
+
+Christian worship album proclaiming Christ’s victory over gates of fire, beasts, void cascades, aetheric tyrants, prismatic abysses & ebon singularities.
