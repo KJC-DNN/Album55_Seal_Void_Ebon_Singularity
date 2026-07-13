@@ -6,14 +6,14 @@ Christian worship album proclaiming Christ’s victory over gates of fire, beast
 
 Song 01- Seal the Void
 
-Song 02- SSeal of the Void
+Song 02- Seal of the Void
 
-Song 03- SSever 9050
+Song 03- Sever 9050
 
-Song 04- SCrush the Void Cascade
+Song 04- Crush the Void Cascade
 
-Song 05- SAnnihilate the Aetheric Collapse
+Song 05- Annihilate the Aetheric Collapse
 
-Song 06- SShatter the Prismatic Abyss
+Song 06- Shatter the Prismatic Abyss
 
 Song 07- SShatter the Ebon Singularity
